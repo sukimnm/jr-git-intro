@@ -1,1 +1,0 @@
-And I can see snow : )
